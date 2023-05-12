@@ -48,13 +48,9 @@ Note:	If your mail isn’t sent after the correct changes and you got a warning 
 	if you haven’t enabled 2-Step Verification.
 	
 
-	Source Code By: Malahim Tech
-	
-	Follow on Social Profiles:-
-	
-	https://www.youtube.com/c/malahimtech
-	https://www.instagram.com/malahimansari/
+	Source Code By: S BALASUBRAMANYAM
 	
 	If you need help and work for your business so contact me on fiverr
 
-	https://www.fiverr.com/malahimansari85
+	Mail id: saddabalasubramanyam81@gmail.com
+	whatsapp number: 7815870194
